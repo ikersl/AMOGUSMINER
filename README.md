@@ -1,0 +1,2 @@
+# AMOGUSMINER
+amogus verus ඞ
