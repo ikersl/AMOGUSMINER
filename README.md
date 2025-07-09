@@ -1,2 +1,2 @@
 # AMOGUSMINER
-amogus verus ඞ
+amogus xmrig ඞ
